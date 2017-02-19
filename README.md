@@ -1,5 +1,7 @@
 Objetosc
+
 biale w drewnianym pudelku 130 ->http://www.malinowyslon.pl/www-malinowyslon-pl/pomoce-montessori/edukacja-matematyczna/pudelko-malych-szescianow
+
 drewniany 224 ->www.malinowyslon.pl/pomoce-montessori-premium/edukacja-matematyczna/drewniany-szescian
 dreniane kostki prostopadloscian 104->www.malinowyslon.pl/pomoce-montessori-premium/edukacja-matematyczna/drewniane-kostki-do-wiezy-z-pudelkiem
 zestaw dziesietny ->http://www.malinowyslon.pl/pomoce-montessori/edukacja-matematyczna/Zestaw-dziesietny-komplet
