@@ -17,6 +17,7 @@ Pole powierzchni
 do wyznaczania powierzchni trojkatow ->http://www.malinowyslon.pl/pomoce-montessori-zolte-figury-do-wyznaczania-powierzchni
 
 Bryły
+
 drewniane 79zl ->http://www.sklep.educarium.pl/educarium.php?section=1&kategoria=4&p=0&subkategoria=48&produkt=16916
 Bryły do wsypywania->http://www.sklep.educarium.pl/educarium.php?section=1&kategoria=9&subkategoria=48&produkt=11270
 drewniane 69-> http://www.edu-centrum.webity.pl/product/bryly-drewniane-19-sztuk-1236/
